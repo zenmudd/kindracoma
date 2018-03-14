@@ -1,4 +1,4 @@
-lyrics for the Kindracoma
+Kindracoma's lyrics
 
 1. Undressed
 2. Mantra (draft)
